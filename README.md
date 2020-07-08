@@ -1,4 +1,4 @@
-## Bienvenidos al 1er Curso-Taller a distancia de Revisiones Rápidas
+## Curso de revisiones rápidas para NUTRICIÓN
 ![Alt Text](Flyer_ADA_CUCS.png)
 
 [![Alt text](https://img.youtube.com/vi/XvwE-VE--VQ/0.jpg)](https://youtu.be/XvwE-VE--VQ)] 
